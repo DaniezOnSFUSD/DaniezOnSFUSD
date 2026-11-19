@@ -35,7 +35,7 @@ I am actively migrating and rebranding my active game libraries, repositories, a
 * **GitHub Organization:** [@DaniezDev](https://github.com/DaniezDev)
 * **Bluesky:** [@daniezsocial.bsky.app](https://bsky.app/profile/daniezsocial.bsky.social)
 * **Discord Server:** [discord.gg/V9nVwu836D](https://discord.gg/V9nVwu836D)
-* **Direct Contact:** [Daniez1+DaniezOnSFUSD@proton.me](mailto:Daniez1+DaniezOnSFUSD@proton.me)
+* **Direct Contact:** [DaniezOnSFUSD.frenzied524@passinbox.com](mailto:DaniezOnSFUSD.frenzied524@passinbox.com)
 
 ---
 
