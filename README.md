@@ -9,7 +9,7 @@ Student game developer in San Francisco building browser games, web apps, and Ch
 [Bluesky](https://bsky.app/profile/daniezsocial.bsky.social) | 
 [DaniezDev Org](https://github.com/DaniezDev) | 
 [Discord](https://discord.gg/V9nVwu836D) | 
-Email Me: [Daniez1+DaniezOnSFUSD@proton.me](mailto:Daniez1+DaniezOnSFUSD@proton.me)
+Email Me: [Daniez1+DaniezOnSFUSD@proton.me](mailto:DaniezOnSFUSD.frenzied524@passinbox.com)
 
 ---
 
